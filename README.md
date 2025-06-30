@@ -1,4 +1,4 @@
-## Hi there, I'm Victoria 👋
+## Hi there, I'm Viktoria 👋
 
 Cybersecurity Analyst @ Positive Technologies | Information Security of Automated Systems @ BMSTU.
 
